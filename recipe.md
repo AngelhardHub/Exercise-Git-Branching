@@ -7,19 +7,10 @@
 
 ## INGREDIENTS
  
-* 250 g cooked bulgur wheat – approx 125g dry
-* 250 g cooked chickpea – 400g tin
-* 150 g of roasted aubergines – roast till super soft and melt in your mouth texture
-* 100 g of cherry tomatoes
-* 50 g spring onions/ scallions approx 2
-* 50 g of cucumber
-* large bunch Flat parsley 20g
-* Bunch of fresh mint 20g
-Dressing
-* 50 ml Olive oil
-* Juice of 1 lemon
-* 1 tbsp tamari
-* Salt & black pepper to taste
+* appel
+* peer 
+* bananen
+* enz...
 
 ## INSTRUCTIONS
  
